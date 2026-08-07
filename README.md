@@ -1,6 +1,6 @@
 ### Hi there, I'm Phuc Nguyen 👋
 
-**IT Business Analyst Lead, Product Lead** | Fintech & Digital Banking | Founder of **BA Zone**
+**Founder of **BA Zone**
 
 
 🔭 **What I'm working on:**
